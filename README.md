@@ -1,15 +1,8 @@
-⠀
 <div align="center">
   
-![](https://komarev.com/ghpvc/?username=riwoos&label=꜀(^.+.+^꜀+)੭++++&color=9EBCD4&style=plastic)
+<img src="https://github.com/riwoos/riwoos/blob/8ab6bc19b4979118042a0770d752f6cd250145ae/awwsda.gif" width=25%>
 </div>
-<div align="center">
-<img src="https://github.com/riwoos/riwoos/blob/2828229b30b45365a1cad70b2b6f03ccc631ea5e/nyan.jpg" width=25%>
-</div>
-
+ㅤ
 <div align="center">
   
-[♥](https://rentry.co/yunhe)
-i am full of yaoi and whimsy and glitter do not let anyone outshine you sign my [ata](https://riwoo.atabook.org/) lol
-im 17 and miserable
-</div>
+![](https://komarev.com/ghpvc/?username=riwoos&label=꜀(^.+.+^꜀+)੭++++&color=FE56A1&style=plastic)࿔*:･ㅤㅤㅤ[about](https://rentry.co/yunhe)ㅤㅤㅤ♥ㅤㅤㅤ[ata](https://riwoo.atabook.org/)
