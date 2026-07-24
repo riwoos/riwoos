@@ -1,8 +1,5 @@
 <div align="center">
   
-<img src="https://github.com/riwoos/riwoos/blob/8ab6bc19b4979118042a0770d752f6cd250145ae/awwsda.gif" width=25%>
+<img src="https://github.com/riwoos/riwoos/blob/c365b1d583497797d55e472f6d387c257eec6059/Untitled_design__1_-removebg-preview.png" width=25%>
 </div>
 ㅤ
-<div align="center">
-  
-![](https://komarev.com/ghpvc/?username=riwoos&label=꜀(^.+.+^꜀+)੭++++&color=FE56A1&style=plastic)࿔*:･ㅤㅤㅤ[about](https://rentry.co/yunhe)ㅤㅤㅤ♥ㅤㅤㅤ[ata](https://riwoo.atabook.org/)
