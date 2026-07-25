@@ -5,5 +5,6 @@
 ㅤ
 <div align="center">
 
-click sion for my rentry !! yayy
+[ ꒰人 ̳ᴗ  ̫ ᴗ ̳꒱❤︎](https://rentry.co/yunhe)
+
 </div>
