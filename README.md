@@ -4,6 +4,6 @@
 </div>
 ㅤ
 <div align="center">
-  
-[𝓽𝓸𝓸𝓽𝓱 𝓯𝓪𝓲𝓻𝔂](https://rentry.co/yunhe)
+
+[<img src="https://github.com/riwoos/riwoos/blob/765fec2fcb734ed519bd2b00324cd82187d2ea59/cooltext512684223618222.png" width=25%>](https://rentry.co/yunhe)
 </div>
