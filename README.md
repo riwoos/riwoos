@@ -8,9 +8,3 @@
 [ ꒰人 ̳ᴗ  ̫ ᴗ ̳꒱❤︎](https://rentry.co/yunhe)
 
 </div>
-
-<div align="center">
-
-friendly reminder that i don't know you so ?? keep your jokes moderated lol
-
-</div>
