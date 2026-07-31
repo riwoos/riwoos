@@ -1,6 +1,6 @@
 <div align="center">
   
-<img src="https://github.com/riwoos/riwoos/blob/8c1e59a21662c73435de3a8d641d212c6c7eb6b6/Untitled%20design%20(3).pdf">
+<img src="https://github.com/riwoos/riwoos/blob/c1f339c83d487012cb62877a3debac50cd936a4f/Untitled_design__3_-removebg-preview.png">
 ㅤ
 <div align="center">
 
