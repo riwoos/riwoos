@@ -1,7 +1,6 @@
 <div align="center">
   
-[<img src="https://github.com/riwoos/riwoos/blob/c365b1d583497797d55e472f6d387c257eec6059/Untitled_design__1_-removebg-preview.png" width=25%>](https://rentry.co/yunhe)
-</div>
+<img src="https://github.com/riwoos/riwoos/blob/8c1e59a21662c73435de3a8d641d212c6c7eb6b6/Untitled%20design%20(3).pdf">
 ㅤ
 <div align="center">
 
