@@ -1,10 +1,10 @@
 <div align="center">
   
-<img src="https://github.com/riwoos/riwoos/blob/c1f339c83d487012cb62877a3debac50cd936a4f/Untitled_design__3_-removebg-preview.png">
+<img src="https://github.com/riwoos/riwoos/blob/97122cbdd720f2dc2b5d3777743d0cf27e293981/awh-removebg-preview.png" width=40%>
 ㅤ
 <div align="center">
 
-[ ꒰人 ̳ᴗ  ̫ ᴗ ̳꒱❤︎](https://rentry.co/yunhe) ⠀⠀⠀⠀ ㅤ⠀⠀⠀ ⠀⠀⠀ 
+[ ꒰人 ̳ᴗ  ̫ ᴗ ̳꒱❤︎](https://rentry.co/yunhe) ⠀  ㅤ
 
 </div>
 
