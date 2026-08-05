@@ -4,7 +4,7 @@
 ㅤ
 <div align="center">
 
-[ ꒰人 ̳ᴗ  ̫ ᴗ ̳꒱❤︎](https://rentry.co/yunhe) ⠀  ㅤ
+[ ꒰人 ̳ᴗ  ̫ ᴗ ̳꒱❤︎](https://jaehee.atabook.org/) ⠀  ㅤ
 
 </div>
 
