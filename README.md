@@ -8,4 +8,6 @@
 
 i love u, hetmongi! ⠀⠀ ⠀⠀i laub u tu sandeokki
 <img src="https://64.media.tumblr.com/ed777b127d151f72b6c58bed1eb91b08/4b7584b7c3a93ea0-df/s250x400/b44ec183296c3722605820c6600e6fb65d648168.gifv" width=0%>
+
+i liek p1harmony, ampers&one, 82major, boyextdoor, xikers, ateez, zb2ble, nexz, &team and liek much more talk2me :]
 </div>
